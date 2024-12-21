@@ -1,1 +1,0 @@
-# adm-freddy_copa_uyuni
